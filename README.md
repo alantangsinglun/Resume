@@ -6,6 +6,7 @@ I have problems in finding Jobs in Hong Kong. I use jobsdb.com in finding jobs, 
 
 I can only list part of the compaines in Hong Kong which the date is between 29th March to 31 March 2025. I will try to contact Google, hope one day can list out all 350 jobs that applied in jobsdb during the 2 years 2023 to 2025. Below list out the jobs:
 
+- Hong kong labour department (Only IT jobs - only one feedback)
 - Hospital authority 4 interviews
 - People Technology Holdings Limited has viewed your application for Software Developer / Senior Software Developer
 -  Heals Healthcare (Asia) Limited has viewed your application for Software Enginee
