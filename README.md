@@ -40,3 +40,5 @@ I can only list part of the compaines in Hong Kong which the date is between 29t
 - Osmium Consulting Group Limited
 - RecruitFirst Limited
 - Sportsoho Media Limited
+
+Seems Hong kong is not very welcome me to work here. I was born in a wrong place. I promise I will hunt down all the 350 companies. Promise me if you have guts, don't look at my GitHub. 
