@@ -41,4 +41,4 @@ I can only list part of the compaines in Hong Kong which the date is between 29t
 - RecruitFirst Limited
 - Sportsoho Media Limited
 
-Seems Hong kong is not very welcome me to work here. I was born in a wrong place. I promise I will $${\color{red}hunt}$$ $${\color{red}down}$$ all the 350 companies. Promise me if you have guts, don't look at my GitHub. Don't take anything from here. 
+Seems Hong kong is not very welcome me to work here. I was born in a wrong place. I promise I will $${\color{red}hunt}$$ $${\color{red}down}$$ all the 350 companies. Promise me if you have guts, don't look at my GitHub. Don't take anything from here. Trust me and GOD, you have something hiding.....
