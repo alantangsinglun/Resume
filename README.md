@@ -2,7 +2,7 @@
 
 ## You can reach me if you have any job opportunity. I am Always available.
 
-I have problems in finding Jobs in Hong Kong. I use jobsdb.com in finding jobs, totally around $${\color{red}350 jobs}$$. But no interview. My gmail is under surveillance by Google. I want to list out the companies that I searched, however, with the help of GOOGLE. They removed it. All companies are from Hong Kong. NO INTERVIEW!!!!!
+I have problems in finding Jobs in Hong Kong. I use jobsdb.com in finding jobs, totally around $${\color{red}350}$$ $${\color{jobs}350}$$. But no interview. My gmail is under surveillance by Google. I want to list out the companies that I searched, however, with the help of GOOGLE. They removed it. All companies are from Hong Kong. NO INTERVIEW!!!!!
 
 I can only list part of the compaines in Hong Kong which the date is between 29th March to 31 March 2025. I will try to contact Google, hope one day can list out all 350 jobs that applied in jobsdb during the 2 years 2023 to 2025. Below list out the jobs:
 
@@ -41,4 +41,4 @@ I can only list part of the compaines in Hong Kong which the date is between 29t
 - RecruitFirst Limited
 - Sportsoho Media Limited
 
-Seems Hong kong is not very welcome me to work here. I was born in a wrong place. I promise I will $${\color{red}hunt down}$$ all the 350 companies. Promise me if you have guts, don't look at my GitHub. Don't take anything from here. 
+Seems Hong kong is not very welcome me to work here. I was born in a wrong place. I promise I will $${\color{red}hunt}$$ $${\color{red}down}$$ all the 350 companies. Promise me if you have guts, don't look at my GitHub. Don't take anything from here. 
